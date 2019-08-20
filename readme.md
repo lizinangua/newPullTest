@@ -1,1 +1,1 @@
-aaa
+quick and simple
